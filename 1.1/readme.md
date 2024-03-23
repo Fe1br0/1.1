@@ -82,4 +82,12 @@
 ------
 ### Ответ
 
+![Screenshot_2](https://github.com/Fe1br0/1.1/assets/106814458/c2f5983d-7754-4f01-b5f3-d4fa62387c00)
+
+![Screenshot_1](https://github.com/Fe1br0/1.1/assets/106814458/b55d0b01-efc0-4876-9cee-e16555ae6651)
+
+
+![Screenshot_3](https://github.com/Fe1br0/1.1/assets/106814458/fb9fdb27-bcdd-4c00-beff-72bfd749036d)
+
+
 
